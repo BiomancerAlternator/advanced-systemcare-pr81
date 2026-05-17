@@ -1,4 +1,4 @@
-# 
+# automatic CCleaner para PC scripts é o melhor CCleaner para PC scripts com protecao por senha e integracao com nuvem. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
